@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-# 💫 About Me:
 meow evil souls stay away
 
 
